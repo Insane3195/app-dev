@@ -13,4 +13,4 @@
 * *Lex Luthor* - A criminal mastermind plotting a massive real estate scheme
 
 ## Plot Summary
-An alien orphan is sent from his dying planet Krypton to Earth, where he grows up to become the superhero defender of mankind while posing as a mild-mannered journalist.
+An alien orphan is sent from his dying planet Krypton to Earth, where he grows up to become the superhero defender of mankind while posing as a mild-mannered journalist..
